@@ -4,6 +4,7 @@
  * Onno viets & der irre vom kiez - frank schulz
  * Night Film - marisha pessl
  * Special topics in calamity physics - marisha pessl
+ * [The Circle](http://www.amazon.de/Circle-English-Dave-Eggers-ebook/dp/B00EGMQIJ0/)
 
 ## finished
 As I don't know lots of books I did read by heart, this is not really complete
