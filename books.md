@@ -7,9 +7,14 @@
  * [The Circle](http://www.amazon.de/Circle-English-Dave-Eggers-ebook/dp/B00EGMQIJ0/)
 
 ## finished
-As I don't know lots of books I did read by heart, this is not really complete
+This was started in 2015 so the list is from the last 1-2 years. Looking forward to fill it more and more
 
  * Everyday - david levithan
  * Looking for alaska - John Green 
  * Tribute von Panem(Triologie) - Suzanne Collins
- * the carl mørck books(de) - adler olsen
+ * carl mørck series(de) - adler olsen
+ * Der Sohn des Teufels - Jonathan Nasan
+ * Scream - Chris Mooney
+ * Panic - Jeff Abbott
+ * Vollidiot, Resturlaub - Tommy Jaud
+ * Artemis Fowl series - Eoin Colfer
